@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fikie-Royce
-- 👀 I’m interested in becoming one of the grate Software Engineers
+- 👀 I’m interested in becoming one of the greate Software Engineers
 - 🌱 I’m currently studying Computer Science and Engineering
 - 📫 How to reach me ...victor_okyere@yahoo.com
 
